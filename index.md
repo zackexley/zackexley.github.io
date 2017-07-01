@@ -3,10 +3,10 @@ Don't know what brought you here, but since you aksed, here's a little bit about
 
 ### New project
 
-Inspired by the Alt Right's total take over of YouTube -- which more people watch now than all of TV (read my paper linked above) -- I'm making videos aim at improving the world's worldview. Check out the videos [here](https://www.youtube.com/channel/UCVrE6_b8mFBXkodk6gO54rg). I'm just getting started!
+Inspired by the Alt Right's total take over of YouTube -- which more people watch now than all of TV (read my [paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/)) -- I'm making videos aim at improving the world's worldview. Check out the videos [here](https://www.youtube.com/channel/UCVrE6_b8mFBXkodk6gO54rg). I'm just getting started!
 
 ### Other stuff I think about
-I spend as much time as I can reading history and economics. I'm focused on how countries that were very poor became prosperous, and have spent a lot of time thinking about how America can learn from those cases (including our own story!) to rebuild our economy and get 50 million Americans out of poverty and into great jobs.
+I spend as much time as I can reading history and economics. I'm focused on how poor countries become rich -- and how declining economies (like America's) can turn things around.
 
 ### If you're looking for something else 
 If you're a reporter or looking for me for some other reason, just email me@zackexley.com. Apologies in advance if I can't get back to you, but if we answered all our email, it's all we would all day, right? 
