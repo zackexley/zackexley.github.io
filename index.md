@@ -14,4 +14,4 @@ If you're a reporter or looking for me for some other reason, just email me@zack
 _______
 
 You can also connect with me in all the usual places. 
-[FB](http://facebook.com) [TW](http://twitter.com/zackexley) [IN](https://www.instagram.com/zackexley/)
+[FB](http://facebook.com/zackexley) [TW](http://twitter.com/zackexley) [IN](https://www.instagram.com/zackexley/)
