@@ -3,7 +3,7 @@ Don't know what brought you here, but since you aksed, here's a little bit about
 
 ### Rules for Revolutionaries
 
-My old friend and colleague from the Bernie campaign Becky Bond and I coauthored a book: [Rules for Revolutionaries: How Big Organizing Can Change Everything.](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0). It's been making the rounds, and we've had a lot of fun speaking to groups about Big Organizing. Please get in touch if you'd like one or both of us to speak to your group.
+My old friend and colleague from the Bernie campaign Becky Bond and I coauthored a book: [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0). It's been making the rounds, and we've had a lot of fun speaking to groups about Big Organizing. Please get in touch if you'd like one or both of us to speak to your group.
 
 ### New project
 
