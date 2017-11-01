@@ -7,7 +7,7 @@ My old friend and colleague from the Bernie campaign Becky Bond and I coauthored
 
 ### New project
 
-While working on Brand New Congress, I saw a need for a new kind of think tank with a unique focus on big, comprehensive plans to tackle the world's biggest problems. I'm workign to start that now. It's called [Left Right Forward](https://leftrightforward.org], but it's really just embryonic now.
+While working on Brand New Congress, I saw a need for a new kind of think tank with a unique focus on big, comprehensive plans to tackle the world's biggest problems. I'm workign to start that now. It's called [Left Right Forward](https://leftrightforward.org), but it's really just embryonic now.
 
 ### YouTube Experiment 
 
