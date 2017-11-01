@@ -11,10 +11,10 @@ While working on Brand New Congress, I saw a need for a new kind of think tank w
 
 ### YouTube Experiment 
 
-Inspired by the Alt Right's total take over of YouTube -- which more people watch now than all of TV (read my [paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/)) -- I made some videos that attempted to engage an audience there on economic issues in a new way. Check out the videos [here](https://www.youtube.com/channel/UCVrE6_b8mFBXkodk6gO54rg). 
+Inspired by the Alt Right's total take over of YouTube---which more people watch now than all of TV (read my [paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/))---I made some videos that attempted to engage an audience there on economic issues in a new way. Check out the videos [here](https://www.youtube.com/channel/UCVrE6_b8mFBXkodk6gO54rg). 
 
 ### Other stuff I think about
-I spend as much time as I can reading history and economics. I'm focused on how poor countries become rich -- and how declining economies (like America's) can turn things around. The first book I recommend to everyone is Cambirdge Economist Ha-Joon Chang's [Bad Samaritans](https://www.amazon.com/dp/B003Z9L4NA/).
+I spend as much time as I can reading history and economics. I'm focused on how poor countries become rich, and how countries with declining living standards like the U.S. can turn things around. The first book I recommend to everyone is Cambirdge Economist Ha-Joon Chang's [Bad Samaritans](https://www.amazon.com/dp/B003Z9L4NA/).
 
 ### Contact
 If you're a reporter or looking for me for some other reason, just email me@zackexley.com. Apologies in advance if I can't get back to you, but if we answered all our email, it's all we would all day, right? 
