@@ -3,18 +3,18 @@ Since you aksed, here's a little bit about me: I just finished a fellowship at [
 
 ### Rules for Revolutionaries
 
-The amazing Becky Bond and I wrote a book about organizing based on our experiences on the Bernie campaign called [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0). It's been making the rounds, and we've had a lot of fun speaking to groups all around the world about Big Organizing. Please get in touch if you'd like one or both of us to speak to your group.
+Becky Bond and I wrote a book about organizing based on our experiences on the Bernie campaign called [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0). We've had a lot of fun speaking to groups all around the world about Big Organizing. Please get in touch if you'd like one or both of us to speak to your group.
 
 ### New project
 
-While working on Brand New Congress, I identified a need for a new kind of think tank: one that provides comprehensive, common-sense solutions to our biggest problems–solutions that are too simple and obvious for highfalutin academics to bother with–and explains them in plain, simple langauge. I'm workign to start this think tank now! It's tentatively called Left Right Forward, but it's really just embryonic now. You can follow my progress [here](https://leftrightforward.org). 
+While working on Brand New Congress, I identified a need for a new kind of policy think tank: one that provides comprehensive, common-sense solutions for our biggest problems–solutions that are too simple and obvious for highfalutin academics to bother with–and explains them in plain, simple language. I'm working to start this think tank now! It's tentatively called Left Right Forward, but it's still embryonic. You can follow my progress [here](https://leftrightforward.org). 
 
 ### YouTube Experiment 
 
 Inspired by the Alt Right's complete takeover of YouTube–which more people watch now than television (read my [paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/))–I made some videos that attempted to engage an audience there on economic issues in a new way. Check out the videos [here](https://www.youtube.com/channel/UCVrE6_b8mFBXkodk6gO54rg). 
 
 ### Other stuff I think about
-I spend as much time as I can reading history and economics. I'm focused on how poor countries become rich, and how countries with declining living standards like the U.S. can turn things around. The first book I recommend to everyone is Cambirdge Economist Ha-Joon Chang's [Bad Samaritans](https://www.amazon.com/dp/B003Z9L4NA/).
+I spend as much time as I can reading history and economics. I'm focused on how poor countries become rich, and how countries with declining living standards like the U.S. can turn things around. The first book I recommend to everyone is Cambridge Economist Ha-Joon Chang's [Bad Samaritans](https://www.amazon.com/dp/B003Z9L4NA/).
 
 ### Contact
 If you're a reporter or looking for me for some other reason, just email me@zackexley.com. Apologies in advance if I can't get back to you, but if we answered all our email, it's all we would all day, right? 
