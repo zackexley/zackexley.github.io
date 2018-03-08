@@ -1,6 +1,3 @@
-### HELLO!
-You aksed, so here's a little bit about me...
-
 I'm just trying to figure out how in the world we're going to get out of this mess. Right now I'm working with some amazing friends to do that as best we can. Check back for updates!
 
 I live in a small town in rural Southwest Missouri where my wife grew up. I am from West Hartford, Connecticut, which is the opposite of rural Southwest Missouri. 
