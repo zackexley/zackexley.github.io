@@ -1,8 +1,6 @@
 I'm just trying to figure out how in the world we're going to get out of this mess. Right now I'm working with some amazing friends to do that as best we can. Check back for updates!
 
-I live in a small town in rural Southwest Missouri where my wife grew up. I am from West Hartford, Connecticut, which is the opposite of rural Southwest Missouri. 
-
-Here's what I've been up to. Last year, I did a fellowship at [Harvard's Shorenstein Center](http://news.harvard.edu/gazette/story/newsplus/shorenstein-center-announces-spring-2017-fellows/) where, among other things,  [I wrote this paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/). Before that, I served on the Bernie Sanders campaign where [I was honored to work alongside](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) thousands of amazing grassroots leaders who made many miracles happen. Later, as a volunteer I helped start [Brand New Congress](http://brandnewcongress.org), a campaign to [replace pretty much the entire corrupt U.S. Congress](https://www.thenation.com/article/is-brand-new-congress-the-future-of-progressive-politics/) with a slate of honest and visionary local leaders, and [Justice Democrats](https://justicedemocrats.com/), which has been called a [Tea Party](https://www.washingtonpost.com/news/post-politics/wp/2017/01/23/progressives-launch-justice-democrats-to-counter-primary-corporate-legislators/) for the Democratic Party. In my day job, I work with amazing campaigners, organizers and fundraisers at a firm called [Middle Seat](https://middleseat.co).
+Since you asked, here's a little of what I've been up to. Last year, I did a fellowship at [Harvard's Shorenstein Center](http://news.harvard.edu/gazette/story/newsplus/shorenstein-center-announces-spring-2017-fellows/) where, among other things,  [I wrote this paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/). Before that, I served on the Bernie Sanders campaign where [I was honored to work alongside](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) thousands of amazing grassroots leaders who made many miracles happen. Later, as a volunteer I helped start [Brand New Congress](http://brandnewcongress.org), a campaign to [replace pretty much the entire corrupt U.S. Congress](https://www.thenation.com/article/is-brand-new-congress-the-future-of-progressive-politics/) with a slate of honest and visionary local leaders, and [Justice Democrats](https://justicedemocrats.com/), which has been called a [Tea Party](https://www.washingtonpost.com/news/post-politics/wp/2017/01/23/progressives-launch-justice-democrats-to-counter-primary-corporate-legislators/) for the Democratic Party. 
 
 ### Rules for Revolutionaries
 
@@ -17,7 +15,6 @@ I spend as much time as I can reading history and economics. I'm focused on how 
 
 ### Contact
 If you're a reporter or looking for me for some other reason, just email me@zackexley.com. Apologies in advance if I can't get back to you, but if we answered all our email, it's all we would all day, right? 
-
 
 _______
 
