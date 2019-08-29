@@ -6,7 +6,7 @@ I served on the Bernie Sanders 2016 campaign, where [I was honored to work along
 
 A long long time ago, I did things like [organize the first flash mobs](https://www.motherjones.com/politics/2000/12/organizing-online/) before anyone had a name for that, make the first political parodoy site on the Internet, which made [George W Bush to call me](https://www.washingtonpost.com/wp-srv/WPcap/1999-11/29/002r-112999-idx.html) a "garbage man" and declare "there ought to be limits to freedom," and develop some of the first tools for online organizing. I was the first organizing director at MoveOn.org when we were trying to prevent the Iraq War, and then brought our techniques and tools into presidential politics with the Dean and Kerry campaigns.
 
-I spent the 90's working as a union organizer across the midwest and south, working inside some of factories I organized, experiences that taught me most of whatever I know about politics. I counted once, and I've had more than 100 actual jobs since I started working at 14. 
+I spent the 90's working as a union organizer across the midwest and south, working inside some of the factories I organized, experiences that taught me most of whatever I know about politics. I counted once, and I've had more than 100 actual jobs since I started working at 14. 
 
 I was recently a fellow at [Harvard's Shorenstein Center](http://news.harvard.edu/gazette/story/newsplus/shorenstein-center-announces-spring-2017-fellows/) where, among other things,  [I wrote this paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/). 
 
