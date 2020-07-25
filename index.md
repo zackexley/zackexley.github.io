@@ -1,6 +1,6 @@
-Since you asked, here's a little bit about me. At the moment I'm starting a new economic policy project called [New Consensus](http://newconsensus.com). We're working to equip a new generation of leaders with powerful ideas about how we humans can make a better economic life for ourselves. We've been involved in launching and shaping the the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez). 
+Since you asked, here's a little bit about me. At the moment I'm working on a new economic policy project called [New Consensus](http://newconsensus.com). We're working to equip a new generation of leaders with powerful ideas about how we humans can make a better economic life for ourselves. We've been involved in launching and shaping the the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez). 
 
-Before that, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org), campaigns to [replace every corrupt and complict member of the U.S. Congress](https://www.thenation.com/article/is-brand-new-congress-the-future-of-progressive-politics/) with a slate of honest and visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us. 
+Before that, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org), campaigns to [replace every corrupt and complict member of the U.S. Congress](https://www.thenation.com/article/is-brand-new-congress-the-future-of-progressive-politics/) with a slate of honest and visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix. 
 
 I served on the 2016 Bernie Sanders campaign, where [I was honored to work alongside](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) thousands of amazing grassroots leaders who made many miracles happen.
 
@@ -18,12 +18,10 @@ Becky Bond and I wrote a book about organizing based on our experiences on the B
 
 ### Speaking
 
-I love traveling and speaking to groups—especially if we can spend time before and after brainstorming and learning from each other. Over the past few years, I've given talks about organizing, social change and economic policy around North America, Latin America, Europe, India, China and South Africa. The only problem is that it gets in the way of getting actual work done. Therefore, I now condense my speaking each year into two speaking tour sprints, to cities where local groups want to organize something for me. I do these for no speaking fees, but only small optional donations from the hosting groups to cover travel costs. If you want to bring me to your city, email me at zack@newconsensus.com
-
-If you're an org with the budget to pay speaking fees, I do make exceptions to my above rule every now and then because speaking to like-minded groups of great people is definitely my favorite way to pay the bills. 
+I love traveling and speaking to groups, especially if we can spend time before and after brainstorming and learning from each other. Over the past few years, I've given talks about organizing, social change, and economic policy all over North America, Latin America, Europe, India, China and South Africa. Though Covid-19 has paused this part of my life, I'm looking forward to getting back out there. Email me at zack@newconsensus.com if you'd like to set up a virtual talk.
 
 ### Contact
-If you're a reporter or looking for me for some other reason, just email zack@newconsensus.com
+If you're a reporter or looking for me for some other reason, email me at zack@newconsensus.com
 
 _______
 
