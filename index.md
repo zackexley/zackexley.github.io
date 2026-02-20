@@ -16,9 +16,24 @@ I served on the 2016 Bernie Sanders campaign, where [I helped build](https://www
 
 I was involved in creating the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez), which reframed climate policy as economic opportunity.
 
-Before all that, I spent the 90s as a union organizer across the Midwest and South, working inside some of the factories I organized. I was the first organizing director at MoveOn.org, and helped pioneer online organizing and fundraising tools in presidential politics.
-
 Becky Bond and I wrote [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0) based on our experiences on the Bernie campaign.
+
+<small>
+
+#### A few of my greatest hits:
+
+- Organized the [first flash mobs](https://www.motherjones.com/politics/2000/12/organizing-online/) and first purely online-organized protests
+- Created the first political parody website, which made [George W. Bush call me](https://www.washingtonpost.com/wp-srv/WPcap/1999-11/29/002r-112999-idx.html) a "garbage man" and declare "there ought to be limits to freedom"
+- Helped lead MoveOn.org as its first Organizing Director — the first major online political organization
+- Built cutting-edge online organizing and fundraising tools for the Dean, Kerry, Obama, and Bernie presidential campaigns
+- Worked as a union organizer all through my 20s, in factories all over the Midwest and South
+- Watched the rise of Trump living in a tiny town in Missouri
+- Served as Chief Community Officer for Wikipedia
+- Saw real communism while studying in Xi'an, China for a year in 1987
+- Lived in a tiny village in western Kenya before running water or electricity arrived
+- Led the NGO and political practice at a global software services firm, serving organizations and parties in Brazil, South Africa, India, and the US
+
+</small>
 
 ### Contact
 
