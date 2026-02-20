@@ -35,6 +35,8 @@ I served on the 2016 Bernie Sanders campaign, where [I led](https://www.bloomber
 - Built my own Space Invaders and Missile Command with 3.5K RAM on my Commodore VIC-20. 
 </small>
 
+<img src="Commodore-VIC-20-FL.jpg" alt="Commodore VIC-20" style="width: 150px; opacity: 0.8;">
+
 ### Contact
 
 Email me at [zack@newconsensus.com](mailto:zack@newconsensus.com)
@@ -44,3 +46,5 @@ Yes, you can invite me to speak! I love traveling and speaking to groups, especi
 ---
 
 <small>I've been <a href="https://www.huffpost.com/author/zack-exley">writing</a> with em dashes since 1980 and I'm not giving them up.</small>
+
+<img src="Commodore-VIC-20-FL.jpg" alt="Commodore VIC-20" style="width: 150px; opacity: 0.8;">
