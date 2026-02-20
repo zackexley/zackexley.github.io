@@ -2,21 +2,21 @@ I have always believed that humanity has everything it needs to build a sustaina
 
 ### New Consensus
 
-I'm the Co-founder and Executive Director of the think tank [New Consensus](https://newconsensus.com), where we're building the [**Mission for America**](https://newconsensus.com/mfa) — a comprehensive plan for a sweeping, WWII-style economic mobilization to build a new economy. We argue that the mass elimination of bullshit jobs in the AI era is a blessing that will free hundreds of millions to participate in the urgent work of building a clean economy that delivers health, security and real abundance to billions of people left behind by capitalism and saves the planet from global heating catastrophe. 
+I'm the Co-founder and Executive Director of the think tank [New Consensus](https://newconsensus.com), where we're building the [Mission for America](https://newconsensus.com/mfa) — a comprehensive plan for a sweeping, WWII-style economic mobilization to build a new economy. We argue that the mass elimination of bullshit jobs in the AI era is a blessing that will free hundreds of millions to participate in the urgent work of building a clean economy that delivers health, security and real abundance to billions of people left behind by capitalism and saves the planet from global heating catastrophe. 
 
-AI will not eliminate work. Humanity has an enormous global to-do list before it that we must accomplish just to survive the century, let alone to thrive. We must throw ourselves into this work – and AI, just like all technology, is a tool to help us achieve our goals if it is controlled by the public instead of a few private owners.
+AI will not eliminate work. Humanity has an enormous global to-do list before it that we must accomplish just to survive the century, let alone to thrive. We must throw ourselves into this work — and AI, just like all technology, is a tool to help us achieve our goals if it is controlled by the public instead of a few private owners.
 
 ### The Mission for America
 
-The Mission for America is a comprehensive, detailed plan for national economic transformation. It is the Project 2025 for creating instead of destroying. It's a playbook for the U.S. to harness AI and other technologies to upgrade old industries and create new ones to deliver true prosperity sustainably in a single generation. [Read more at newconsensus.com →](https://newconsensus.com/mfa)
+The Mission for America is a comprehensive, detailed plan for national economic transformation. It is the Project 2025 for creating instead of destroying. It's a playbook for the U.S. to harness AI and other technologies to upgrade old industries and create new ones to deliver true prosperity sustainably in a single generation. [Read more at newconsensus.com.](https://newconsensus.com/mfa)
 
 We're actively looking for new staff and collaborators who share the vision of the Mission for America and who would like to develop similar missions for their own countries. Get in touch by email! 
 
 ### Background
 
-After serving as Saikat Chakrabarti's launch director for his historic campaign that convinced Nancy Pelosi to finally step aside, I'm back at New Consensus full time. I co-founded New Consensus with Saikat in 2017, where we created the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez) which re-introduced the left and progressive movements to industrial policy and the idea of economic mobilization.
+After serving as [Saikat Chakrabarti's](https://saikat.us) launch director for his historic campaign that convinced Nancy Pelosi to finally step aside, I'm back at New Consensus full time. I co-founded New Consensus with Saikat in 2017, where we created the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez) which re-introduced the left and progressive movements to industrial policy and the idea of economic mobilization.
 
-Before New Consensus, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org) — campaigns to replace every corrupt member of the U.S. Congress with honest, visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix.
+Before New Consensus, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](https://en.wikipedia.org/wiki/Brand_New_Congress) — campaigns to replace every corrupt member of the U.S. Congress with honest, visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix.
 
 I served on the 2016 Bernie Sanders campaign, where [I led](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) the national grassroots organizing infrastructure that powered the movement. Becky Bond and I wrote a book about our experiences on the campaign called [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0).
 
