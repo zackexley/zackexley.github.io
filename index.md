@@ -1,29 +1,46 @@
-I lead an economic policy think tank called [New Consensus](http://newconsensus.com). We're working to equip a new generation of leaders with powerful ideas about how we humans can make a better economic life for ourselves. We've been involved in launching and shaping the the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez) and are currently working on a detailed playbook for a (hopefully) near-future moment when U.S. leaders decide to get serious about reversing both chronic economic decline and environmental destruction.
+I have always believed that humanity has everything it needs to build a sustainable economy that delivers prosperity for all<a href="#" title="I love the em dash and I'm not giving it up." style="text-decoration: none; color: inherit; border-bottom: 1px dotted #999;"> — </a>in one generation. Recent developments now make that more easily achievable than ever before. Helping that to happen is my primary focus.
 
-Before that, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org), campaigns to [replace every corrupt and complict member of the U.S. Congress](https://www.thenation.com/article/is-brand-new-congress-the-future-of-progressive-politics/) with a slate of honest and visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix. 
+I'm the Executive Director of [New Consensus](https://newconsensus.com), where we're building the **Mission for America** — a comprehensive plan for a sweeping, WWII-style economic mobilization to build a new economy. We argue that the mass elimination of bullshit jobs in the AI era is a blessing that will free hundreds of millions to participate in the urgent work of building a clean economy that delivers health, security and real abundance to billions of people left behind by capitalism and saves the planet from global heating catastrophe. 
 
-I served on the 2016 Bernie Sanders campaign, where [I was honored to work alongside](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) thousands of amazing grassroots leaders who made many miracles happen.
+AI will not eliminate work. Humanity has an enormous global to-do list before it that we must accomplish just to survive the century, let alone to thrive. We must throw ourselves into this work and AI, just like all technology, is a tool to help us achieve our goals if it is controlled by the public instead of a few private owners.
 
-A long, long time ago, I did things like [organize the first flash mobs](https://www.motherjones.com/politics/2000/12/organizing-online/) before anyone had a name for that, make the first political parodoy site on the Internet that made [George W Bush call me](https://www.washingtonpost.com/wp-srv/WPcap/1999-11/29/002r-112999-idx.html) a "garbage man" and declare "there ought to be limits to freedom," and develop some of the first tools for online organizing, community-building and fundraising. I was the first organizing director at MoveOn.org when we were trying to prevent the Iraq War, and then brought our techniques and tools into presidential politics with the Dean and Kerry campaigns.
+### The Mission for America
 
-I spent the 90's working as a union organizer across the Midwest and South, working inside some of the factories I organized—experiences that taught me most of whatever I know about organizing and politics. I counted once, and I've had more than 100 actual jobs since I started working at 14. 
+The Mission for America is a detailed playbook for national economic transformation. It addresses how the U.S. can harness AI and other transformative technologies to rebuild its industrial base, create millions of great jobs, and achieve environmental sustainability — all at the same time and in a single generation. [Read more at newconsensus.com →](https://newconsensus.com)
 
-In 2016, I was a fellow at [Harvard's Shorenstein Center](http://news.harvard.edu/gazette/story/newsplus/shorenstein-center-announces-spring-2017-fellows/) (FANCY!) where [I wrote this paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/) about the Alt Right takeover of YouTube. Inspired, I made some videos that attempted to engage people on economic issues in a new way. It was just an experiment. You can see the results [here](https://www.youtube.com/channel/UCVrE6_b8mFBXkodk6gO54rg). 
+We're actively looking for new staff and collaborators who share the vision of the Mission for America and who would like to develop similar missions for their own countries. Get in touch by email! 
 
-I spend as much time as I can reading history and economics. I'm focused on how countries and communities can make a great living for themselves while saving the planet. The first book I recommend to everyone to get the conversatio going is Cambridge Economist Ha-Joon Chang's [Bad Samaritans](https://www.amazon.com/dp/B003Z9L4NA/).
+### Background
 
-### Rules for Revolutionaries
+After serving as Saikat Chakrabarti's launch director for his historic campaign that convinced Nancy Pelosi to finally step aside, I'm back at New Consensus full time. I co-founded New Consensus with Saikat in 2017, where we created the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez) which re-introduced the left and progressive movements to industrial policy and the idea of economic mobilization.
 
-Becky Bond and I wrote a book about organizing based on our experiences on the Bernie campaign called [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0). Meeting and speaking to groups of fans of the book all over the world is one of the most rewarding things I get to do.
+Before New Consensus, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org) — campaigns to replace every corrupt member of the U.S. Congress with honest, visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix.
 
-### Speaking
+I served on the 2016 Bernie Sanders campaign, where [I led](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) the national grassroots organizing infrastructure that powered the movement. Becky Bond and I wrote a book about our experiences on the campaign called [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0).
 
-I love traveling and speaking to groups, especially if we can spend time before and after brainstorming and learning from each other. Over the past few years, I've given talks about organizing, social change, and economic policy all over North America, Latin America, Europe, India, China and South Africa. Though Covid-19 has paused this part of my life, I'm looking forward to getting back out there. Email me at zack@newconsensus.com if you'd like to set up a virtual talk.
+
+#### I've enjoyed being a random minor note in some major songs:
+
+<small>
+- Organized the [first flash mobs](https://www.motherjones.com/politics/2000/12/organizing-online/) and first purely online-organized protests
+- Created the first political parody website, which made [George W. Bush call me](https://www.washingtonpost.com/wp-srv/WPcap/1999-11/29/002r-112999-idx.html) a "garbage man" and declare "there ought to be limits to freedom"
+- Helped lead MoveOn.org as its first Organizing Director — the first major online political organization
+- Built cutting-edge online organizing and fundraising tools for the Dean, Kerry, Obama, and Bernie presidential campaigns
+- Led the NGO and political practice at a global software services firm, serving organizations and parties in Brazil, South Africa, India, and the US
+- Worked as a union organizer all through my 20s, in factories all over the Midwest and South
+- Experienced the rise of Trump & MAGA while living in a tiny town in Missouri
+- Served as Chief Community Officer for Wikipedia
+- Saw real communism while studying in Xi'an and hitchhiking all over China for a year in 1987
+- Lived in a tiny village in western Kenya before running water or electricity arrived
+- Built my own Space Invaders and Missile Command with 3.5K RAM on my Commodore VIC-20. 
+</small>
 
 ### Contact
-If you're a reporter or looking for me for some other reason, email me at zack@newconsensus.com
 
-_______
+Email me at [zack@newconsensus.com](mailto:zack@newconsensus.com)
 
-You can also connect with me in all the usual places. 
-[FB](http://facebook.com/zackexley) [TW](http://twitter.com/zackexley) [IN](https://www.instagram.com/zackexley/)
+Yes, you can invite me to speak! I love traveling and speaking to groups, especially if we can spend time brainstorming and learning from each other about how to advance and strengthen our movements. 
+
+---
+
+<small>I've been <a href="https://www.huffpost.com/author/zack-exley">writing</a> with em dashes since 1980 and I'm not giving them up.</small>
