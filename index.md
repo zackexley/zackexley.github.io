@@ -1,46 +1,29 @@
-## Building a prosperous future for all
+I lead an economic policy think tank called [New Consensus](http://newconsensus.com). We're working to equip a new generation of leaders with powerful ideas about how we humans can make a better economic life for ourselves. We've been involved in launching and shaping the the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez) and are currently working on a detailed playbook for a (hopefully) near-future moment when U.S. leaders decide to get serious about reversing both chronic economic decline and environmental destruction.
 
-I have always believed that humanity has everything it needs to build a sustainable economy that delivers prosperity for all<a href="#" title="I love the em dash and I'm not giving it up." style="text-decoration: none; color: inherit; border-bottom: 1px dotted #999;"> — </a>in one generation. Recent developments now make that more easily achievable than ever before. Helping that to happen is my primary focus.
+Before that, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org), campaigns to [replace every corrupt and complict member of the U.S. Congress](https://www.thenation.com/article/is-brand-new-congress-the-future-of-progressive-politics/) with a slate of honest and visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix. 
 
-I'm the Executive Director of [New Consensus](https://newconsensus.com), where we're building the **Mission for America** — a comprehensive plan for how America thrives in the age of AI. We're designing economic policy that ensures the massive productivity gains from artificial intelligence translate into broadly shared prosperity, not deeper inequality.
+I served on the 2016 Bernie Sanders campaign, where [I was honored to work alongside](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) thousands of amazing grassroots leaders who made many miracles happen.
 
-### The Mission for America
+A long, long time ago, I did things like [organize the first flash mobs](https://www.motherjones.com/politics/2000/12/organizing-online/) before anyone had a name for that, make the first political parodoy site on the Internet that made [George W Bush call me](https://www.washingtonpost.com/wp-srv/WPcap/1999-11/29/002r-112999-idx.html) a "garbage man" and declare "there ought to be limits to freedom," and develop some of the first tools for online organizing, community-building and fundraising. I was the first organizing director at MoveOn.org when we were trying to prevent the Iraq War, and then brought our techniques and tools into presidential politics with the Dean and Kerry campaigns.
 
-The Mission for America is a detailed playbook for national economic transformation. It addresses how the U.S. can harness AI and other transformative technologies to rebuild its industrial base, create millions of great jobs, and achieve environmental sustainability — all at the same time. [Read more at newconsensus.com →](https://newconsensus.com)
+I spent the 90's working as a union organizer across the Midwest and South, working inside some of the factories I organized—experiences that taught me most of whatever I know about organizing and politics. I counted once, and I've had more than 100 actual jobs since I started working at 14. 
 
-### Background
+In 2016, I was a fellow at [Harvard's Shorenstein Center](http://news.harvard.edu/gazette/story/newsplus/shorenstein-center-announces-spring-2017-fellows/) (FANCY!) where [I wrote this paper](https://shorensteincenter.org/anatomy-of-alt-right-youtuber/) about the Alt Right takeover of YouTube. Inspired, I made some videos that attempted to engage people on economic issues in a new way. It was just an experiment. You can see the results [here](https://www.youtube.com/channel/UCVrE6_b8mFBXkodk6gO54rg). 
 
-Before New Consensus, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org) — campaigns to replace every corrupt member of the U.S. Congress with honest, visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix.
+I spend as much time as I can reading history and economics. I'm focused on how countries and communities can make a great living for themselves while saving the planet. The first book I recommend to everyone to get the conversatio going is Cambridge Economist Ha-Joon Chang's [Bad Samaritans](https://www.amazon.com/dp/B003Z9L4NA/).
 
-I served on the 2016 Bernie Sanders campaign, where [I helped build](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) the grassroots organizing infrastructure that powered the movement.
+### Rules for Revolutionaries
 
-I was involved in creating the [Green New Deal](https://www.vox.com/energy-and-environment/2018/12/21/18144138/green-new-deal-alexandria-ocasio-cortez), which reframed climate policy as economic opportunity.
+Becky Bond and I wrote a book about organizing based on our experiences on the Bernie campaign called [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0). Meeting and speaking to groups of fans of the book all over the world is one of the most rewarding things I get to do.
 
-Becky Bond and I wrote [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0) based on our experiences on the Bernie campaign.
+### Speaking
 
-<small>
-
-#### A few of my greatest hits:
-
-- Organized the [first flash mobs](https://www.motherjones.com/politics/2000/12/organizing-online/) and first purely online-organized protests
-- Created the first political parody website, which made [George W. Bush call me](https://www.washingtonpost.com/wp-srv/WPcap/1999-11/29/002r-112999-idx.html) a "garbage man" and declare "there ought to be limits to freedom"
-- Helped lead MoveOn.org as its first Organizing Director — the first major online political organization
-- Built cutting-edge online organizing and fundraising tools for the Dean, Kerry, Obama, and Bernie presidential campaigns
-- Worked as a union organizer all through my 20s, in factories all over the Midwest and South
-- Watched the rise of Trump living in a tiny town in Missouri
-- Served as Chief Community Officer for Wikipedia
-- Saw real communism while studying in Xi'an, China for a year in 1987
-- Lived in a tiny village in western Kenya before running water or electricity arrived
-- Led the NGO and political practice at a global software services firm, serving organizations and parties in Brazil, South Africa, India, and the US
-
-</small>
+I love traveling and speaking to groups, especially if we can spend time before and after brainstorming and learning from each other. Over the past few years, I've given talks about organizing, social change, and economic policy all over North America, Latin America, Europe, India, China and South Africa. Though Covid-19 has paused this part of my life, I'm looking forward to getting back out there. Email me at zack@newconsensus.com if you'd like to set up a virtual talk.
 
 ### Contact
+If you're a reporter or looking for me for some other reason, email me at zack@newconsensus.com
 
-Email me at [zack@newconsensus.com](mailto:zack@newconsensus.com)
+_______
 
----
-
-<small>I've been <a href="https://www.huffpost.com/author/zack-exley">writing</a> with em dashes since 1980 and I'm not giving them up.</small>
-
-*[Want to know more? Here's the previous version of this page →](archive)*
+You can also connect with me in all the usual places. 
+[FB](http://facebook.com/zackexley) [TW](http://twitter.com/zackexley) [IN](https://www.instagram.com/zackexley/)
