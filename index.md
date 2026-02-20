@@ -1,6 +1,6 @@
 ## Building a prosperous future for all
 
-I have always believed that humanity has everything it needs to build a sustainable economy that delivers prosperity for all, in one generation. Recent developments now make that more easily achievable than ever before. Helping that to happen is my primary focus.
+I have always believed that humanity has everything it needs to build a sustainable economy that delivers prosperity for all<a href="#" title="I love the em dash and I'm not giving it up." style="text-decoration: none; color: inherit; border-bottom: 1px dotted #999;"> — </a>in one generation. Recent developments now make that more easily achievable than ever before. Helping that to happen is my primary focus.
 
 I'm the Executive Director of [New Consensus](https://newconsensus.com), where we're building the **Mission for America**, a comprehensive plan for how America thrives in the age of AI. We're designing economic policy that ensures the massive productivity gains from artificial intelligence translate into broadly shared prosperity, not deeper inequality.
 
@@ -25,5 +25,7 @@ Becky Bond and I wrote [Rules for Revolutionaries: How Big Organizing Can Change
 Email me at [zack@newconsensus.com](mailto:zack@newconsensus.com)
 
 ---
+
+<small>I've been <a href="https://www.huffpost.com/author/zack-exley">writing</a> with em dashes since 1980 and I'm not giving them up.</small>
 
 *[Want to know more? Here's the previous version of this page →](archive)*
