@@ -1,12 +1,14 @@
 I have always believed that humanity has everything it needs to build a sustainable economy that delivers prosperity for all<a href="#" title="I love the em dash and I'm not giving it up." style="text-decoration: none; color: inherit; border-bottom: 1px dotted #999;"> — </a>in one generation. Recent developments now make that more easily achievable than ever before. Helping that to happen is my primary focus.
 
-I'm the Executive Director of [New Consensus](https://newconsensus.com), where we're building the [**Mission for America**](https://newconsensus.com/mfa) — a comprehensive plan for a sweeping, WWII-style economic mobilization to build a new economy. We argue that the mass elimination of bullshit jobs in the AI era is a blessing that will free hundreds of millions to participate in the urgent work of building a clean economy that delivers health, security and real abundance to billions of people left behind by capitalism and saves the planet from global heating catastrophe. 
+### New Consensus
 
-AI will not eliminate work. Humanity has an enormous global to-do list before it that we must accomplish just to survive the century, let alone to thrive. We must throw ourselves into this work and AI, just like all technology, is a tool to help us achieve our goals if it is controlled by the public instead of a few private owners.
+I'm the Co-founder and Executive Director of the think tank [New Consensus](https://newconsensus.com), where we're building the [**Mission for America**](https://newconsensus.com/mfa) — a comprehensive plan for a sweeping, WWII-style economic mobilization to build a new economy. We argue that the mass elimination of bullshit jobs in the AI era is a blessing that will free hundreds of millions to participate in the urgent work of building a clean economy that delivers health, security and real abundance to billions of people left behind by capitalism and saves the planet from global heating catastrophe. 
+
+AI will not eliminate work. Humanity has an enormous global to-do list before it that we must accomplish just to survive the century, let alone to thrive. We must throw ourselves into this work – and AI, just like all technology, is a tool to help us achieve our goals if it is controlled by the public instead of a few private owners.
 
 ### The Mission for America
 
-The Mission for America is a detailed playbook for national economic transformation. It addresses how the U.S. can harness AI and other transformative technologies to rebuild its industrial base, create millions of great jobs, and achieve environmental sustainability — all at the same time and in a single generation. [Read more at newconsensus.com →](https://newconsensus.com)
+The Mission for America is a comprehensive, detailed plan for national economic transformation. It is the Project 2025 for creating instead of destroying. It's a playbook for the U.S. to harness AI and other technologies to upgrade old industries and create new ones to deliver true prosperity sustainably in a single generation. [Read more at newconsensus.com →](https://newconsensus.com/mfa)
 
 We're actively looking for new staff and collaborators who share the vision of the Mission for America and who would like to develop similar missions for their own countries. Get in touch by email! 
 
@@ -17,7 +19,6 @@ After serving as Saikat Chakrabarti's launch director for his historic campaign 
 Before New Consensus, I co-founded [Justice Democrats](https://justicedemocrats.com/) and [Brand New Congress](http://brandnewcongress.org) — campaigns to replace every corrupt member of the U.S. Congress with honest, visionary local leaders. They [made a beautiful movie](https://knockdownthehouse.com) about us that you can watch on [YouTube](https://www.youtube.com/watch?v=YCSo2hZRcXk) or Netflix.
 
 I served on the 2016 Bernie Sanders campaign, where [I led](https://www.bloomberg.com/politics/features/2016-02-24/behind-bernie-sanders-revolution-lies-a-meticulously-engineered-grassroots-network) the national grassroots organizing infrastructure that powered the movement. Becky Bond and I wrote a book about our experiences on the campaign called [Rules for Revolutionaries: How Big Organizing Can Change Everything](https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything-ebook/dp/B01MG20YZ0).
-
 
 #### I've enjoyed being a random minor note in some major songs:
 
@@ -34,8 +35,6 @@ I served on the 2016 Bernie Sanders campaign, where [I led](https://www.bloomber
 - Lived in a tiny village in western Kenya before running water or electricity arrived
 - Built my own Space Invaders and Missile Command with 3.5K RAM on my Commodore VIC-20. 
 </small>
-
-<img src="Commodore-VIC-20-FL.jpg" alt="Commodore VIC-20" style="width: 150px; opacity: 0.8;">
 
 ### Contact
 
