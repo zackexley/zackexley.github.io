@@ -1,4 +1,4 @@
-I have always believed that humanity has everything it needs to build a sustainable economy that delivers prosperity for all<a href="#" title="I love the em dash and I'm not giving it up." style="text-decoration: none; color: inherit; border-bottom: 1px dotted #999;"> — </a>in one generation. Recent developments now make that more easily achievable than ever before. Helping that to happen is my primary focus.
+I have always believed that humanity has everything it needs to build a sustainable economy that delivers prosperity for all — in one generation. Recent developments now make that more easily achievable than ever before. Helping that to happen is my primary focus.
 
 ### New Consensus
 
@@ -43,7 +43,5 @@ Email me at [zack@newconsensus.com](mailto:zack@newconsensus.com)
 Yes, you can invite me to speak! I love traveling and speaking to groups, especially if we can spend time brainstorming and learning from each other about how to advance and strengthen our movements. 
 
 ---
-
-<small>I've been <a href="https://www.huffpost.com/author/zack-exley">writing</a> with em dashes since 1980 and I'm not giving them up.</small>
 
 <img src="Commodore-VIC-20-FL.jpg" alt="Commodore VIC-20" style="width: 150px; opacity: 0.8;">
